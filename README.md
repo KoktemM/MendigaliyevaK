@@ -1,0 +1,2 @@
+# MendigaliyevaK
+About me 
